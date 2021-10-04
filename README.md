@@ -8,10 +8,9 @@ Aqui encontram-se traduções de algumas receitas encontradas em [The Bob's Burg
 
 ## Lista de receitas
 
-- Chèvre Which Way But Loose Burger
-- The Sound And The Curry Burger
-- One Horse Open Slaw Burger
-- Blondes Have More Fun-gus Burger
-- Free To Brie You And Me Burger
-- Parma Parma Parma Chameleon Burger
-- Rest In Peas Burger
+- Hambúrguer Doido Para Brigar... Louco Para Chèvre
+- Hambúruger O Som E A Curry-a
+- Hambúrguer As Loiras Se Cogumelam Mais
+- Hambúrguer Brie Para Ser Eu E Você
+- Hambúrguer Parma Parma Parma Chameleon
+- Hambúrguer Ervilhe Em Paz
