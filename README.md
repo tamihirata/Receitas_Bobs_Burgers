@@ -11,6 +11,6 @@ Aqui encontram-se traduções de algumas receitas encontradas em [The Bob's Burg
 - Hambúrguer Doido Para Brigar... Louco Para Chèvre
 - Hambúruger O Som E A Curry-a
 - Hambúrguer As Loiras Se Cogumelam Mais
-- Hambúrguer Brie Para Ser Eu E Você
+- Hambúrguer Li-brie Para Ser Eu E Você
 - Hambúrguer Parma Parma Parma Chameleon
 - Hambúrguer Ervilhe Em Paz
