@@ -1,4 +1,4 @@
-# Hambúrguer Brie Para Ser Eu E Você
+# Hambúrguer Li-brie Para Ser Eu E Você
 
 ##### Temporada 3, Episódio 23: Nada Natural
 
